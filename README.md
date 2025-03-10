@@ -1,0 +1,2 @@
+# AUN_308
+YBS308: VERİ BİLİMİNE GİRİŞ
